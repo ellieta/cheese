@@ -2,7 +2,7 @@
 
 ### the origins 
 It was *really* not that big of a deal at first. It all began one day in Ms. Perry's 9th grade bio class, when she asked what my favorite snack was. Caught off guard, I said **I really like sliced cheese**." My friends, of course, joked around about it, mocking me. It wasn't a big deal until I actually began incoporating cheese into my daily life. And now we have reached this point.
-<img src="https://user-images.githubusercontent.com/114502698/192648480-9e78fa94-3c73-437d-a6bd-90a2c016b80f.PNG)" width="200" height="100">
+<img src="https://user-images.githubusercontent.com/114502698/192648480-9e78fa94-3c73-437d-a6bd-90a2c016b80f.PNG" width="200" height="100">
 ---
 ### the developments
 Cheese slowly became a default to everything I did. It infiltrated my Valorant username, my profile pictures, my lock screen, my clothes, my cups. 
