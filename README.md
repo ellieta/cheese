@@ -16,7 +16,8 @@ I only have one another account, but here are some of the other names I could ha
 - thatsacheesyjoke
 - yourcheesyfriendXD
  <h4>  exhibit b: my discord profile picture  </h4>
-My friends and I think matching profile pictures are, what the internet calls, cringe. But given that we call every day, we wanted our profile pictures to somewhat blend together nicely (at least color wise) so we could have something pretty to look at during our 9pm discord calls. <br>
+My friends and I think matching profile pictures are, what the internet calls, cringe. But given that we call every day, we wanted our profile pictures to somewhat blend together nicely (at least color wise) so we could have something pretty to look at during our 9pm discord calls.
+ <br>
  <img src="https://user-images.githubusercontent.com/114502698/192647916-3f6369ae-b5af-4032-8059-d54dac495ddc.PNG" width="250" height="500"> 
 <br>
 We change the color of our profile pictures every few months, often based on holidays. 
