@@ -27,7 +27,7 @@ We change the color of our profile pictures every few months, often based on hol
 
 <h4>  exhbit c: personal items   </h4>
 My friends caught onto the whole theme of me liking cheese, and they began gifting me a lot of cheese-related things. 
----
+
 <h4> the end   </h4>
 That is all! As you can see, cheese became a hilariously large part of my life, and is now even something I can write about!
 
