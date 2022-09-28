@@ -5,7 +5,7 @@ It was *really* not that big of a deal at first. It all began one day in Ms. Per
 <br>
 <img src="https://user-images.githubusercontent.com/114502698/192648480-9e78fa94-3c73-437d-a6bd-90a2c016b80f.PNG" width="300" height="300">
 <br>
-<h3> the developments </h3>
+## the developments
 Cheese slowly became a default to everything I did. It infiltrated my Valorant username, my profile pictures, my lock screen, my clothes, my cups. 
  <h4> exhibit a: the valorant username </h4>
 After downloading Valorant one day, I figured, what is the most ironically silly username I can come up with? And boom, notcheesyXD was born. 
@@ -28,7 +28,7 @@ We change the color of our profile pictures every few months, often based on hol
 <h4>  exhbit c: personal items   </h4>
 My friends caught onto the whole theme of me liking cheese, and they began gifting me a lot of cheese-related things. 
 
-<h4> the end   </h4>
+## the end  
 That is all! As you can see, cheese became a hilariously large part of my life, and is now even something I can write about!
 
 
