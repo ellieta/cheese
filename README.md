@@ -9,12 +9,12 @@ It was *really* not that big of a deal at first. It all began one day in Ms. Per
 Cheese slowly became a default to everything I did. It infiltrated my Valorant username, my profile pictures, my lock screen, my clothes, my cups. 
  <h4> exhibit a: the valorant username </h4>
 After downloading Valorant one day, I figured, what is the most ironically silly username I can come up with? And boom, notcheesyXD was born. 
-[my stats](insert link here)
+[my stats](https://tracker.gg/valorant/profile/riot/notcheesyXD%23yip/overview?season=all)
  <h4> my other accounts </h4>
 I only have one another account, but here are some of the other names I could have/would have gone with 
-- cheesypopcorn
-- thatsacheesyjoke
-- yourcheesyfriendXD
+* cheesypopcorn 
+* thatsacheesyjoke
+* yourcheesyfriendXD
  <h4>  exhibit b: my discord profile picture  </h4>
 My friends and I think matching profile pictures are, what the internet calls, cringe. But given that we call every day, we wanted our profile pictures to somewhat blend together nicely (at least color wise) so we could have something pretty to look at during our 9pm discord calls.
  <br>
