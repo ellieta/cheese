@@ -9,7 +9,7 @@ It was *really* not that big of a deal at first. It all began one day in Ms. Per
 Cheese slowly became a default to everything I did. It infiltrated my Valorant username, my profile pictures, my lock screen, my clothes, my cups. 
  <h4> exhibit a: the valorant username </h4>
 After downloading Valorant one day, I figured, what is the most ironically silly username I can come up with? And boom, notcheesyXD was born. 
-[my stats](https://tracker.gg/valorant/profile/riot/notcheesyXD%23yip/overview?season=all)
+[MY STATS](https://tracker.gg/valorant/profile/riot/notcheesyXD%23yip/overview)
  <h4> my other accounts </h4>
 I only have one another account, but here are some of the other names I could have/would have gone with 
 * cheesypopcorn 
