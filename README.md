@@ -11,12 +11,13 @@ Cheese slowly became a default to everything I did. It infiltrated my Valorant u
 After downloading Valorant one day, I figured, what is the most ironically silly username I can come up with? And boom, notcheesyXD was born. 
 [MY STATS](https://tracker.gg/valorant/profile/riot/notcheesyXD%23yip/overview)
  <h4> my other accounts </h4>
-I only have one another account, but here are some of the other names I could have/would have gone with 
+I only have one another account, but here are some of the other names I could have/would have gone with:
 * cheesypopcorn 
 * thatsacheesyjoke
 * yourcheesyfriendXD
  <h4>  exhibit b: my discord profile picture  </h4>
 My friends and I think matching profile pictures are, what the internet calls, cringe. But given that we call every day, we wanted our profile pictures to somewhat blend together nicely (at least color wise) so we could have something pretty to look at during our 9pm discord calls.
+
  <br>
  <img src="https://user-images.githubusercontent.com/114502698/192647916-3f6369ae-b5af-4032-8059-d54dac495ddc.PNG" width="250" height="500"> 
 <br>
@@ -26,8 +27,8 @@ We change the color of our profile pictures every few months, often based on hol
 <img src="https://user-images.githubusercontent.com/114502698/192648116-6e91898a-1c42-437c-9efc-c825052cf94a.PNG" width="250" height="250"> 
 
 <h4>  exhbit c: personal items   </h4>
-My friends caught onto the whole theme of me liking cheese, and they began gifting me a lot of cheese-related things. 
-
+My friends caught onto the whole theme of me liking cheese, and they began gifting me a lot of cheese-related things, such as cups, sweatshirts, necklaces, socks, and more! 
+ <img src="https://user-images.githubusercontent.com/114502698/192928836-c9932d07-38bd-4948-a881-e3cf46573191.PNG" width="550" height="550">
 ## the end  
 That is all! As you can see, cheese became a hilariously large part of my life, and is now even something I can write about!
 
