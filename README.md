@@ -33,4 +33,3 @@ My friends caught onto the whole theme of me liking cheese, and they began gifti
 That is all! As you can see, cheese became a hilariously large part of my life, and is now even something I can write about!
 
 
-
